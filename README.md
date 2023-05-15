@@ -1,1 +1,0 @@
-https://gudorlltti.github.io
